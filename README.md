@@ -1,4 +1,7 @@
-😁 Olá, sejá bem vindo ╰(*°▽°*)╯   
+😁 Olá, sejá bem vindo ╰(*°▽°*)╯
+
+Meu nome é Augusto, sou brasileiro, meu sonho desde pequeno era trabalhar com algo que envolvesse computadores, finalmente conheci programação, mas também sou um amante de mecânica...
+E aqui estou eu, crescendo e evoluindo.
      
      Portuguese // inglish 
      
